@@ -12,3 +12,7 @@ My own friends don't join for this bro when i tell them but today dhruvv my goat
 
 <img src="pic1.jpeg" width = '400'>
 <img src="pic2.jpeg" width = '400'>
+
+We had a session that Sattva had to take for rural students from Tamil Nadu, the core team came together after a  while, we had fun conducting 
+the session and it helped that we had someone who speaks tamil.<br>
+<img src="pic3.jpeg" width = '400'>
