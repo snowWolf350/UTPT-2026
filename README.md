@@ -14,5 +14,7 @@ My own friends don't join for this bro when i tell them but today ved my goat to
 <img src="pic2.jpeg" width = '400'>
 
 We had a session that Sattva had to take for rural students from Tamil Nadu, the core team came together after a  while, we had fun conducting 
-the session and it helped that we had someone who speaks tamil.<br>
+the session and it helped that we had someone who speaks tamil.After the session, we brought sharngini a penguin in divinity.<br>
 <img src="pic3.jpeg" width = '400'>
+
+Friday : India quiz, i wear my kurta and come to college, morning only we meet veena maam, get the reg desk set up in front of ec. We were roaming here and there getting things, i uploaded the youtube videos with avik sir. Then i sat with drithi and had lunch before litent started. Then we were in between litent before we went and packed up with expert education. Got their standees, Rohith got them their refreshments for which i got milk :) Then night i shifted into pg.
