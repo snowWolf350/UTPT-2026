@@ -21,6 +21,7 @@ Friday : India quiz, i wear my kurta and come to college, morning only we meet v
 
 <img src="pic14.JPG" width = '400'><br>
 <img src="pic15.JPG" width = '400'><br>
+<img src="pic28.jpeg" width = '400'><br>
 
 Saturday : Me nd vaudeva went in metro then bus early morning, reached then shreesha and me had to get print of answer sheets, we also went to california burritos 
 that day, I met lakshmi who was probably the first girl who had so mush game knowledge very cool.We got kitkat from a very super senior we also 
@@ -38,3 +39,7 @@ and videos then we went to have dinner at dominoz nd went back to pg.
 <img src="pic21.JPG" width = '400'><br>
 <img src="pic22.JPG" width = '400'><br>
 <img src="pic23.JPG" width = '400'><br>
+<img src="pic24.JPG" width = '400'><br>
+<img src="pic25.JPG" width = '400'><br>
+<img src="pic26.JPG" width = '400'><br>
+<img src="pic27.JPG" width = '400'><br>
