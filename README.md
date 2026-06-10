@@ -34,3 +34,4 @@ Sunday : This was the day of open quiz, we went in cab from pg, ate breakfast at
 but didnt qualify. We went out and ate continuously at pakashala.While major's quiz was going on we were outside having fun taking all sorts of photos
 and videos then we went to have dinner at dominoz nd went back to pg. 
 <img src="pic19.JPG" width = '400'><br>
+<img src="pic20.JPG" width = '400'><br>
