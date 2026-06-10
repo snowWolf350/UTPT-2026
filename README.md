@@ -27,5 +27,10 @@ that day, I met lakshmi who was probably the first girl who had so mush game kno
 met a very old member of qc who came on sunday. That day i came pg very late and ended up staying at jai's room cs vasudeva was asleep and i didnt have 
 the biometrics. While sports quiz was going on we were framing the science and biztech quesitons.<br>
 <img src="pic16.JPG" width = '400'><br>
+<img src="pic17.JPG" width = '400'><br>
+<img src="pic18.JPG" width = '400'><br>
 
-Sunday : This was the day of open quiz, we went in cab from pg, ate breakfast at benne dose and were actually late for the open quiz lol. I sat solo but didnt qualify. We went out and ate continuously at pakashala.While major's quiz was going on we were outside having fun taking all sorts of photos and videos then we went to have dinner at dominoz nd went back to pg. 
+Sunday : This was the day of open quiz, we went in cab from pg, ate breakfast at benne dose and were actually late for the open quiz lol. I sat solo 
+but didnt qualify. We went out and ate continuously at pakashala.While major's quiz was going on we were outside having fun taking all sorts of photos
+and videos then we went to have dinner at dominoz nd went back to pg. 
+<img src="pic19.JPG" width = '400'><br>
