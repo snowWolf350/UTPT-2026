@@ -30,10 +30,15 @@ the biometrics. While sports quiz was going on we were framing the science and b
 <img src="pic16.JPG" width = '400'><br>
 <img src="pic17.JPG" width = '400'><br>
 <img src="pic18.JPG" width = '400'><br>
+<img src="pic7.HEIC" width = '400'><br>
 
 Sunday : This was the day of open quiz, we went in cab from pg, ate breakfast at benne dose and were actually late for the open quiz lol. I sat solo 
 but didnt qualify. We went out and ate continuously at pakashala.While major's quiz was going on we were outside having fun taking all sorts of photos
 and videos then we went to have dinner at dominoz nd went back to pg.<br>
+<img src="pic8.HEIC" width = '400'><br>
+<img src="pic9.HEIC" width = '400'><br>
+<img src="pic10.HEIC" width = '400'><br> 
+<img src="pic11.HEIC" width = '400'><br>
 <img src="pic19.JPG" width = '400'><br>
 <img src="pic20.JPG" width = '400'><br>
 <img src="pic21.JPG" width = '400'><br>
