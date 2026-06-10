@@ -43,11 +43,11 @@ and videos then we went to have dinner at dominoz nd went back to pg.<br>
 <img src="pic25.JPG" width = '400'><br>
 <img src="pic26.JPG" width = '400'><br>
 <img src="pic27.JPG" width = '400'><br>
-<img src="pic29.JPG" width = '400'><br>
-<img src="pic30.JPG" width = '400'><br>
-<img src="pic31.JPG" width = '400'><br>
-<img src="pic32.JPG" width = '400'><br>
-<img src="pic33.JPG" width = '400'><br>
-<img src="pic34.JPG" width = '400'><br>
-<img src="pic35.JPG" width = '400'><br>
+<img src="pic29.jpeg" width = '400'><br>
+<img src="pic30.jpeg" width = '400'><br>
+<img src="pic31.jpeg" width = '400'><br>
+<img src="pic32.jpeg" width = '400'><br>
+<img src="pic33.jpeg" width = '400'><br>
+<img src="pic34.jpeg" width = '400'><br>
+<img src="pic35.jpeg" width = '400'><br>
 
