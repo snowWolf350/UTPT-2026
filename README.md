@@ -35,3 +35,6 @@ but didnt qualify. We went out and ate continuously at pakashala.While major's q
 and videos then we went to have dinner at dominoz nd went back to pg. 
 <img src="pic19.JPG" width = '400'><br>
 <img src="pic20.JPG" width = '400'><br>
+<img src="pic21.JPG" width = '400'><br>
+<img src="pic22.JPG" width = '400'><br>
+<img src="pic23.JPG" width = '400'><br>
